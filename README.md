@@ -1,1 +1,0 @@
-# gwrealty.github.io
